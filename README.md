@@ -1,0 +1,2 @@
+# wishingcupfr
+GitHub Pages
